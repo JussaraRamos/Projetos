@@ -4,7 +4,7 @@ Matricula: 1604492
 
 ## INTRODUÇÃO
 
-Este trabalho tem como finalidade apresenta uma introdução sobre a pesquisa a ser feita para pré- projeto abordaremos um pouco da situação de adoção de pets, o abandono e maus tratos do mesmo, oque este sendo feito e a importância que a pesquisa do trabalho referente a esses fatos e acontecimentos.
+Este trabalho tem como finalidade apresenta uma introdução sobre a pesquisa a ser feita para pré- projeto, abordaremos um pouco da situação de adoção de pets, o abandono e maus tratos do mesmo, oque este sendo feito e a importância que a pesquisa do trabalho referente a esses fatos e acontecimentos.
 
 De tempo em tempo tem se visto a mudança das pessoas a cerca de abandono de animais, apesar de ultimamente ter diminuído tais ações, ainda é notável e de extrema atenção ao caso de abandonos de animais.
 
